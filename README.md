@@ -1,3 +1,7 @@
+
+![gif alt](https://github.com/EY3L1D/EY3L1D/blob/05a407abbfd2212963a786ef2d07b731642092ca/DREAMERS%20BEAT.gif)
+
+
 𝙳𝚁𝙴𝙰𝙼𝙴𝚁'𝚂 𝙱𝙴𝙰𝚃 
 
                                     ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
