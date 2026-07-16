@@ -17,9 +17,6 @@
 
                       
                                      
-
-![image alt](https://github.com/EY3L1D/EY3L1D/blob/342061d2c49d663d6b750e55e286ae7de30cca06/LIVING%20MILLENNIUM%20.jpg)
-
-                                      1000年生きてる
-
 ![gif alt](https://github.com/EY3L1D/EY3L1D/blob/fd56a5c6c4155c89ba8e41ab075709b7a482fea3/meow.gif)
+
+## ok baibaii ! 
