@@ -1,3 +1,7 @@
+![gif alt](https://github.com/EY3L1D/EY3L1D/blob/da251ed46634b8fbbe9cd3adc7e2b5526f68c638/brightmemories%20(1).gif)
+
+★ ᴡᴏʀʟᴅ ꜰᴜᴛᴜʀᴇ ꜱᴛᴀʀ ! ★
+
 ![gif alt](https://github.com/EY3L1D/EY3L1D/blob/99230e0c46935d36aea09da4f23d3a5c10db1eb5/cheers.gif)
 
 
