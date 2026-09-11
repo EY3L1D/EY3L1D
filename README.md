@@ -1,4 +1,4 @@
-![gif alt](https://github.com/EY3L1D/EY3L1D/blob/05a407abbfd2212963a786ef2d07b731642092ca/DREAMERS%20BEAT.gif)
+![gif alt](https://github.com/EY3L1D/EY3L1D/blob/2d685ee56c356ba97b28beecdc16a2559b0a75cc/dreamers.gif)
 
 
 𝙳𝚁𝙴𝙰𝙼𝙴𝚁'𝚂 𝙱𝙴𝙰𝚃 
