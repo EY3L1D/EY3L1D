@@ -16,6 +16,6 @@
 
                       
                                      
-![gif alt](https://github.com/EY3L1D/EY3L1D/blob/fd56a5c6c4155c89ba8e41ab075709b7a482fea3/meow.gif)
+![gif alt](https://github.com/EY3L1D/EY3L1D/blob/1f6d0afe3ef8bd4ac2b21933711d975e2aec42e6/greatyellfordreamers.gif)
 
 ## ok baibaii !
