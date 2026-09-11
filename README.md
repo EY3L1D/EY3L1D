@@ -1,4 +1,4 @@
-## ✦ 𝙷𝚎𝚕𝚕𝚘 ! 𝚠𝚎𝚕𝚌𝚘𝚖𝚎 𝚝𝚘 𝚜𝚎𝚔𝚊𝚒 ! ♪
+## ✦ 𝙷𝚎𝚕𝚕𝚘 ! 𝚠𝚎𝚕𝚌𝚘𝚖𝚎 𝚝𝚘 𝚜𝚎𝚔𝚊𝚒 ! ♪ ₊⊹
 ![gif alt](https://github.com/EY3L1D/EY3L1D/blob/da251ed46634b8fbbe9cd3adc7e2b5526f68c638/brightmemories%20(1).gif)
 
 ★ ᴡᴏʀʟᴅ ꜰᴜᴛᴜʀᴇ ꜱᴛᴀʀ ! ★
